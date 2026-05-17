@@ -10,7 +10,15 @@
 
 <p>Oltre ad aggiungere risorse in modo illimitato, il generatore è protetto da sistemi avanzati anti-rilevamento, riducendo al minimo qualsiasi rischio per il tuo account. E tutto questo, completamente gratis. Nessun abbonamento, nessun costo nascosto, nessuna pubblicità invasiva.</p>
 
-# 🔴🔴 **[👉 Clicca Qui per Scaricare i Trucchi per Yu-Gi-Oh Duel Links](https://tinyurl.com/ThumbTattica)** 🔴🔴
+<div align="center">
+
+<h1>
+<a href="https://shr.pn/ThumbTattica">
+🫵🫵 CLICCA QUI PER SCARICARE I TRUCCHI 🫵🫵
+</a>
+</h1>
+
+</div>
 
 <h2>Risorse Illimitate con un Click</h2>
 
@@ -100,4 +108,12 @@
 
 <p><strong>Clicca subito sul pulsante qui sotto, scarica i trucchi per Yu-Gi-Oh Duel Links e cambia per sempre la tua esperienza di gioco!</strong></p>
 
-# 🔴🔴 **[👉 Clicca Qui per Scaricare i Trucchi per Yu-Gi-Oh Duel Links](https://tinyurl.com/ThumbTattica)** 🔴🔴
+<div align="center">
+
+<h1>
+<a href="https://shr.pn/ThumbTattica">
+🫵🫵 CLICCA QUI PER SCARICARE I TRUCCHI 🫵🫵
+</a>
+</h1>
+
+</div>
